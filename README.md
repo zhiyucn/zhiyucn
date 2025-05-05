@@ -1,16 +1,18 @@
-## Hi there 👋
+人生呐 能不能放过我这一次
+下辈子我只想做个
+不会长大的孩子
+有人取暖有人依靠
+不会有太多心事
+用最天真的橡皮
+就能擦去生活的争执
+人生呐 能不能放过我这一次
+有时候明明很累
+却不知道为什么要坚持
 
-<!--
-**zhiyucn/zhiyucn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+《我以为是减速带呢》
+《盲区没看到》
+《跟我的保险说去吧》
+《我们都在用力地活着》
+《不是我都这么用力了你怎么还活着》
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+来看我个人资料的雌小鬼我是百吨王，来国道试试，只是不小心认成减速带了而已
